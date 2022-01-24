@@ -15,6 +15,6 @@
 
 ## 四、游戏界面
 
-![image-20220124163321356](C:\Users\HP\AppData\Roaming\Typora\typora-user-images\image-20220124163321356.png)
+[![7oIo01.png](https://s4.ax1x.com/2022/01/24/7oIo01.png)](https://imgtu.com/i/7oIo01)
 
-![image-20220124163428905](C:\Users\HP\AppData\Roaming\Typora\typora-user-images\image-20220124163428905.png)
+[![7oIImR.png](https://s4.ax1x.com/2022/01/24/7oIImR.png)](https://imgtu.com/i/7oIImR)
